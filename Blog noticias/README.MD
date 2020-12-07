@@ -1,0 +1,2 @@
+# Blog liga Endesa
+En éste blog vamos ha hablar sobre todas las noticias de fichajes,rumores y clasificaciones que tenga que ver con la liga endesa y sus equipos incluyendo la euroliga si compiten ella.
